@@ -42,4 +42,5 @@ If you’d like to connect or see more projects:
 💼 LinkedIn – Carol Akmal
 
 ✉️ Email: carolakmal4@gmail.com
+
 👩‍💻 Developed by Carol Akmal
